@@ -3,6 +3,7 @@
 No idea how GitHub works btw, I'll work on this later...
 I love my pretty little girlfriend!
 
+No unblocking if i block u
 Might make a block appeal thingy cuz why not but anyway
 
 (cool art from 1 yr ago)
