@@ -6,6 +6,7 @@ I love my pretty little girlfriend!
 No unblocking if i block u
 Might make a block appeal thingy cuz why not but anyway
 
-(cool art from 1 yr ago)
-<img width="2048" height="1536" alt="Oasis Zombie AU (5th PC art)" src="https://github.com/user-attachments/assets/8174f9fd-96d9-4981-b88f-00993446f24e" />
+most recent art that i drew w my pc touchpad on my school pc lol
+<img width="672" height="760" alt="image" src="https://github.com/user-attachments/assets/8936b345-b588-452b-82cb-073b8397fb2a" />
+
 
