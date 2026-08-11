@@ -2,6 +2,7 @@
 
 # SIGN MY ATA PLS!! 
 ## I WILL RESP TO EVERYTHING WITHIN THE SPAN OF 24 HRS UNLESS OTHERWISE STATED SO FEEL FREE TO RETURN IN A DAY TO SEE IF I'VE RESPONDEDDD!!! ^^
+## Question of the week for ata: Do you like pineapple on pizza? Yes or no and why?
 
 No idea how GitHub works btw, I'll work on this later...
 I love my pretty little girlfriend!
