@@ -5,9 +5,18 @@
 ## Question of the week for ata: "Do you like pineapple on pizza? Yes or no and why?"
 new question every SUNDAY evening (5-9 PM/17-21) (TIMEZONE : GMT +3)
 
-No idea how GitHub works btw, I'll work on this later...
-
 I love my pretty little girlfriend!
+
+# Github is hard, I will make my page more aesthetically pleasing when I learn to...
+
+I'm generally pretty nice and polite, but usually I might appear pushy or rude towards my gf but that's just how we love eachother and it usually isn't meant to be taken seriously. It is all consensual & mutual ! (but if ur rude to her, instant permablock from me.)
+
+I still have some issues with myself that I am not proud of, but I am actively working on becoming a better person!
+
+In cases where I cause harm, accidentally or purposefully, please tell me about it and I will do my best to act better :)
+
+Please understand and keep these in mind while interacting with me !
+
 
 No unblocking if i block u
 
