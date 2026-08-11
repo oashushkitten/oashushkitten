@@ -2,7 +2,7 @@
 
 # SIGN MY ATA PLS!! 
 ## I WILL RESP TO EVERYTHING WITHIN THE SPAN OF 24 HRS UNLESS OTHERWISE STATED SO FEEL FREE TO RETURN IN A DAY TO SEE IF I'VE RESPONDEDDD!!! ^^
-## Question of the week for ata: "Do you like pineapple on pizza? Yes or no and why?"
+## Question of the week for ata: Do you like pineapple on pizza? Yes or no and why?
 new question every SUNDAY evening (5-9 PM/17-21) (TIMEZONE : GMT +3)
 ## STRAWPAGE IS CURRENTLY NOT AVAILABLE!! UNDER WORK!
 
