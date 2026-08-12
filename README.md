@@ -12,17 +12,13 @@ I love my pretty little girlfriend!
 
 I'm generally pretty nice and polite, but usually I might appear pushy or rude towards my gf but that's just how we love eachother and it usually isn't meant to be taken seriously. It is all consensual & mutual ! (but if ur rude to her, instant permablock from me.)
 
-I still have some issues with myself that I am not proud of, but I am actively working on becoming a better person!
-
-In cases where I cause harm, accidentally or purposefully, please tell me about it and I will do my best to act better :)
+I still have some issues with myself that I am not proud of, but I am actively working on becoming a better person! In cases where I cause harm, accidentally or purposefully, please tell me about it and I will do my best to act better :)
 
 Please understand and keep these in mind while interacting with me !
 
 
-No unblocking if i block u
-
-Might make a block appeal thingy cuz why not but anyway
+No unblocking if i block u (Might make a block appeal thingy cuz why not but anyway...)
 
 art block bruhhh
 
-
+*insert art here when I make some*
