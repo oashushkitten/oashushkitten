@@ -23,7 +23,6 @@ No unblocking if i block u
 
 Might make a block appeal thingy cuz why not but anyway
 
-most recent art that i drew w my pc touchpad on my school pc lol
-<img width="672" height="760" alt="image" src="https://github.com/user-attachments/assets/8936b345-b588-452b-82cb-073b8397fb2a" />
+art block bruhhh
 
 
