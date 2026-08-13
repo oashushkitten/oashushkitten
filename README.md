@@ -21,4 +21,3 @@ No unblocking if i block u (Might make a block appeal thingy cuz why not but any
 
 art block bruhhh
 
-*insert art here when I make some*
