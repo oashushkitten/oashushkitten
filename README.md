@@ -5,4 +5,5 @@ GITHUB WIP !!
 
 # SIGN MY ATA PLS!! 
 ## I WILL RESP TO EVERYTHING WITHIN THE SPAN OF 24 HRS UNLESS OTHERWISE STATED SO FEEL FREE TO RETURN IN A DAY TO SEE IF I'VE RESPONDEDDD!!! ^^
-new question every SUNDAY evening (5-9 PM/17-21) (TIMEZONE : GMT +3)
+New question of the week every SUNDAY evening (5-9 PM/17-21) (TIMEZONE : GMT +3)
+current question: What is the craziest thing you have ever misheard?
