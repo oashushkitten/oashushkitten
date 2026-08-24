@@ -1,9 +1,9 @@
 ## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ SIGN ATA I BEG !!
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ revamping github, unfinished :)
 
-INT : DC fans ,, Beatles fans
+INT : ANYONE that is not in my DNI! DC fans ,, Beatles fans
 
-THIN ICE : Marvel fans (okay if also a DC fan)
+THIN ICE : Marvel fans (okay if also a DC fan) ,, pro-fic (unless you're problematic)
 
 DNI : under 14 ,, over 18 (unless friends/mutuals) ,, basic dni ,, pro-harrassment ,, black/redpills ,, out of touch people ,, problematic people ,, actively in dramas
 
