@@ -16,6 +16,6 @@ DNI : under 15 ,, over 18 (unless friends/mutuals) ,, basic dni ,, pro-harrassme
   
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Jon Kent of [@paw-town!](https://github.com/paw-town) ! thank u so much !
  
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎   ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎Jon listens to Lana, canon trust me bro
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎   ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎Jon listens to Lana, canon trust me bro /silly, nsrs
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎  ‎ ‎‎  ‎‎ ‎ ‎ ‎‎  ‎ ‎‎Sub 5 fanon Jon ❌ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ True Adam canon Jon ✔️
