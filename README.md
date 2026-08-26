@@ -7,7 +7,7 @@ INT : ANYONE that is not in my DNI! ,, mutuals ,, doubles r ok! ^^ ,,
 
 THIN ICE : Marvel fans (INT ok if also a DC fan) ,, 
 
-DNI : under 15 ,, over 18 (unless friends/mutuals) ,, basic dni ,, pro-harrassment ,, black/redpills ,, out of touch people ,, problematic people ,, actively in dramas ,, people who make Jon into a submissive crybaby with no other personality than being Damian's boyfriend ,, @mlgkent + his alts & close circle ,,
+DNI : under 15 ,, over 18 (unless friends/mutuals) ,, basic dni ,, pro-harrassment ,, black/redpills ,, out of touch people ,, problematic people ,, actively in dramas ,, people who make Jon into a submissive crybaby with no other personality than being Damian's boyfriend ,, @mlgkent + his alts & close circle ,, copycats ,, troll skins of penises, vaginas, breasts or butts, NO THANK YOU !! ,, over-sensitive/"too woke" (modern term, not the original meaning) ,, people who are on the far right of the political spectrum ,,
 
 ## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  Chill Jon Kent fictkin
 ##  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎      ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ALWAYS‎ a ‎sharing self-shipper & kin
